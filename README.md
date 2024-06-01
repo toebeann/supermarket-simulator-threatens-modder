@@ -96,7 +96,7 @@ Were these simply the words of rogue or misguided moderators, who were not thems
 Now, I'm sure some of you will point out that princess' exact words were "All legal actions are taken against all these kinds of mods." princess did not specifically state they _will_ take action against multiplayer mods or Pseudo. However, my read on this is that it is a simple grammatical error. A more charitable interpretation would go something like "legal actions _are_ taken by _some other_ people _sometimes_ for _some other_ multiplayer mods," but:
 
 1. This sentence does not feel like it fits neatly in the context of those surrounding it, it would come somewhat out of the blue.
-2. Why would you bring up that other multiplayer mods have legal action taken against them, if not to imply that it might happen to Pseudo if they do not cease and desist? It doesn't make any sense to me to say this except to try and intimidate Pseudo, or to warn them of a genuine intent to bring legal action again them.
+2. Why would you bring up that other multiplayer mods have legal action taken against them, if not to imply that it might happen to Pseudo if they do not cease and desist? It doesn't make any sense to me to say this except to try and intimidate Pseudo, or to warn them of a genuine intent to bring legal action against them.
 
 No matter how I try to justify this, it doesn't look good for Cannias and his team of moderators.
 
