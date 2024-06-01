@@ -102,7 +102,7 @@ No matter how I try to justify this, it doesn't look good for Cannias and his te
 
 Given everything, I personally believe that Pseudo should consider the "advice" from zhanshiDE and princess to be real threats of legal action, made on behalf of Cannias. I certainly do.
 
-Threatening legal action against modders for stealing your thunder, deleting evidence of these conversations and banning people for sending them... these are an awful lot of red flags. If you care about mods, Supermarker Simulator seems like a sinking ship, and I'm putting on my life jacket.
+Threatening legal action against modders for stealing your thunder, deleting screenshots providing evidence of these conversations and banning people for raising concerns about them... these are an awful lot of red flags. If you care about mods, Supermarker Simulator seems like a sinking ship, and I'm putting on my life jacket.
 
 But maybe I'm not seeing things clearly.
 
